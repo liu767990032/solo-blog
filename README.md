@@ -10,6 +10,7 @@
 
 ### 最新
 
+* [吃一堑，长一智](https://www.logoxiang.top/articles/2019/10/24/1571907090273.html)
 * [世界，你好！](https://www.logoxiang.top/hello-solo)
 
 
